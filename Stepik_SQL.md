@@ -10,3 +10,4 @@ https://docs.google.com/document/d/1Xm6YAnkyoQg8uS6GpWazGHvtdxvsgwcADRHvzdepWy4/
 _________________________________
 2 Часть
 -
+https://docs.google.com/document/d/1fo_NxMBd_N4dD9fFUgvKl3ldi1txi7f7bPYPubzbUDU/edit?usp=sharing
