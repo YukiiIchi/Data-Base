@@ -18,3 +18,5 @@ _________________________________
 _________________________________
 「3 Часть」
 -
+(3.1)https://docs.google.com/document/d/1FI_-wDQdalr61raHJYSKvQkUYpjD3KydLnuYBSjYkwQ/edit?usp=sharing
+Coming soon...
