@@ -15,3 +15,5 @@ _________________________________
 (2.3)https://docs.google.com/document/d/1KJkeQUo1aQWaDByvmmYouARaNs7GfV80bbkRIeeE7Wk/edit?usp=sharing
 (2.4)https://docs.google.com/document/d/1aTa9mB_LeB2hX7PlC5dKBCxgtlVEq4qsZ2RXbf9j-U8/edit?usp=sharing
 (2.5)https://docs.google.com/document/d/1tPoS_kEDzHRKksSLC6ittkOx1oe4fT9TSysCNKP5ivk/edit?usp=sharing
+「3 Часть」
+-
