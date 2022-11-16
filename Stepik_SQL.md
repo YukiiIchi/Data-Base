@@ -7,5 +7,6 @@ https://docs.google.com/document/d/1KkD2IP-H6YUEgpIBUa9vvdaos62P2SC2rH7PYVBl2Z4/
 https://docs.google.com/document/d/1-bGJ1o4AfzOt1sPgI0xiG9XLmZ3HunYxdLfpNfzEgmo/edit?usp=sharing
 https://docs.google.com/document/d/108TjDB8r6PRmgHbzMsNwtd0c38C_9tniUxav5aT5Iss/edit?usp=sharing
 https://docs.google.com/document/d/1Xm6YAnkyoQg8uS6GpWazGHvtdxvsgwcADRHvzdepWy4/edit?usp=sharing
+_________________________________
 2 Часть
 -
