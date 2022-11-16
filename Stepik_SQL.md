@@ -11,3 +11,4 @@ _________________________________
 2 Часть
 -
 https://docs.google.com/document/d/1fo_NxMBd_N4dD9fFUgvKl3ldi1txi7f7bPYPubzbUDU/edit?usp=sharing
+https://docs.google.com/document/d/1pNrGjQch_Z8gCNDfhe465luA6LYeZOdUdqQ2TtFppb4/edit?usp=sharing
