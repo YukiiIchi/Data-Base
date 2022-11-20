@@ -19,6 +19,13 @@ _________________________________
 「3 Часть」
 -
 (3.1)https://docs.google.com/document/d/1FI_-wDQdalr61raHJYSKvQkUYpjD3KydLnuYBSjYkwQ/edit?usp=sharing
+(3.2)https://docs.google.com/document/d/1thF8bl0J7Ufk2Z4b1UaqCOrSxvB2FsaeomUNcE32iVs/edit?usp=sharing
+(3.3)https://docs.google.com/document/d/180b8qBmBgtlEbWUcCJRmS8rJf-Bu6BbSF7mrNSc0Dg8/edit?usp=sharing
+(3.4)https://docs.google.com/document/d/1qQTAybxjDCHsCGSM2bPzW3hAZDow6QdjbV69D78T_f0/edit?usp=sharing
+(3.5)https://docs.google.com/document/d/1P1U3tRSJBFPfHid8O9wOpNM3kryV_XA5sKbNvLGNmEc/edit?usp=sharing
+__________________________________
+「Сертификат」
+-
+https://stepik.org/cert/1772375
 
 
-Coming soon...
